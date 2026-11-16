@@ -1,1 +1,1 @@
-![MADEITMYSELF](github/lightergif.gif)
+![MADEITMYSELF](github/slightlylighter.gif)
