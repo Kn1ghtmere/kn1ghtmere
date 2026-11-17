@@ -1,1 +1,1 @@
-![MADEITMYSELF](github/slightlylighter.gif)
+![MADEITMYSELF](github/dagif-ezgif.com-optimize.gif)
